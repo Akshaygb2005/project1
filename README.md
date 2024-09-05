@@ -1,4 +1,4 @@
-**Name:** Aksahy G B
+**Name:** Akshay G B
 
 **comapny name:** CODETECH IT SOLUTIONS
 
